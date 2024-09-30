@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **mfmaccoil@gmail.com**
 
-- ⚡ Fun fact **I use a double knot to tie my shoes.**
+- **I use a double knot to tie my shoes.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
